@@ -1,0 +1,1 @@
+# Star-Notary-Smart-Contract-Version-1-Non-tokenized-
